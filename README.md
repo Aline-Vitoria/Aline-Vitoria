@@ -3,7 +3,7 @@
 - 👋 Ola, meu nome e @Aline-Vitoria 
 - 📞 Meu email de contato é conceicao.aline@escola.pr.gov.br
 - 📕 Sou estudante do colégio Orlando Luiz Zamprônio.
-- 📔 Minha especialidade é portugûes.
+- 📔 Minha especialidade é dormir.
 
 
 <!---
